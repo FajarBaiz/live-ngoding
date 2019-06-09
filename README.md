@@ -1,1 +1,1 @@
-hamzakhan.org
+fajarbaiz.com
